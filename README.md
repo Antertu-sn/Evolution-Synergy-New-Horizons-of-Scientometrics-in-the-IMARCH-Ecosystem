@@ -1,7 +1,6 @@
-# Evolution-Synergy-New-Horizons-of-Scientometrics-in-the-IMARCH-Ecosystem  
-<img width="1024" height="1536" alt="Copilot_20260703_171647" src="https://github.com/user-attachments/assets/d522bce4-dccd-4a94-884c-779fbeaa182d" />  
+# Evolution-Synergy-New-Horizons-of-Scientometrics-in-the-IMARCH-Ecosystem   
 Синергия Эволюции: Новые Горизонты Наукометрии в Экосистеме IMARCH  
-  
+<img width="1024" height="1536" alt="Copilot_20260703_171647" src="https://github.com/user-attachments/assets/d522bce4-dccd-4a94-884c-779fbeaa182d" /> 
 ## Размышления независимого системного стратега на стыке вековых традиций и цифрового бэкэнда нового уклада.
 
 Знаете, в чем главная проблема современных больших денег и старых академических титулов? Они до смерти боятся потерять лицо. 
